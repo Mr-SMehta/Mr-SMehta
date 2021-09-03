@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mr-SMehta
+- 👀 I’m interested in Ethical hacking and cyber-security.
+- 🌱 I’m currently learning AI in different sectors.
+- 💞️ I’m looking to collaborate on lerning with code.
+- 📫 Sujitrmehta@gmail.com / Mr-SMehta
